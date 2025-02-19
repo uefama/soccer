@@ -2,13 +2,13 @@
 
 Onde assistir a Borussia Dortmund x Sporting ao vivo, na internet e na TV no Brasil e em Portugal, escalação, horário e mais dos playoffs da Champions League 2024/25
 
-**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://urslink.club/mymoviesmob)**
+**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://tinyurl.com/4dwhr6d4)**
 
-**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://urslink.club/mymoviesmob)**
+**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://tinyurl.com/4dwhr6d4)**
 
-**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://urslink.club/mymoviesmob)**
+**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://tinyurl.com/4dwhr6d4)**
 
-**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://urslink.club/mymoviesmob)**
+**[➤ ►🌍📺📱👉 Sporting x Dortmund Ao Vivo](https://tinyurl.com/4dwhr6d4)**
 
 Equipes entram em campo nesta quarta-feira (19), no Estádio Signal Iduna Park; confira a transmissão e outras informações do jogo
 
